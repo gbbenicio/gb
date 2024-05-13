@@ -2,8 +2,8 @@
 
 ### Dados
 
-Gustavo Biangolino Benício
-WhatsApp: (21) 98029-3031
+Gustavo Biangolino Benício  
+WhatsApp: (21) 98029-3031  
 E-mail: gbbenicio@gmail.com
 
 ### Idiomas
